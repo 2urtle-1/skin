@@ -9,3 +9,5 @@
 # [16:9](https://drive.google.com/file/d/1Ny0hupgur4g6g0mGcPYmXcsi5SUlwq5t/view?usp=sharing)
 ![screenshot1915](https://github.com/user-attachments/assets/6aa59219-f456-4bcc-a926-07c0f9454576)
 ![screenshot1914](https://github.com/user-attachments/assets/dbfee61d-4e81-428e-9d2a-fd0d21aa901b)
+# [malteser2(Tateyama)](https://drive.google.com/file/d/1JHs6OJDORPEUIfrzh-K1dAqdih5gjIDy/view?usp=sharing)
+![screenshot1966](https://github.com/user-attachments/assets/6ad05a43-09a0-4fa3-a7ee-95b62b02c4ec)
