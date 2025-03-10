@@ -9,8 +9,8 @@
 # [16:9](https://drive.google.com/file/d/1Ny0hupgur4g6g0mGcPYmXcsi5SUlwq5t/view?usp=sharing)
 ![screenshot1915](https://github.com/user-attachments/assets/6aa59219-f456-4bcc-a926-07c0f9454576)
 ![screenshot1914](https://github.com/user-attachments/assets/dbfee61d-4e81-428e-9d2a-fd0d21aa901b)
-# [malteser2(Tateyama)16.9](https://drive.google.com/file/d/1f2EJ1c30PNAc9l2ghRAaiCcf9SKByTBK/view?usp=sharing)
+# [malteser2(Tateyama)16.9](https://drive.google.com/file/d/1RcBxNvgeiBul1WoKxC71RLmqOIweLyy8/view?usp=sharing)
 ## Mar. 10 -Changed voice sound and interface.
 ![screenshot1966](https://github.com/user-attachments/assets/6ad05a43-09a0-4fa3-a7ee-95b62b02c4ec)
-# [MISKAMODELKA(Tateyama)16.9](https://drive.google.com/file/d/1NK8ywLxbuDXN7xhYffwIdgGhk1yCEy9X/view?usp=sharing)
+# [MISKAMODELKA(Tateyama)16.9](https://drive.google.com/file/d/1LY2zzfggFZQ3ugZE97SdkrAMsO06PlCu/view?usp=sharing)
 ![screenshot1979](https://github.com/user-attachments/assets/611cb38b-52d5-4f46-840c-9391116a94a2)
