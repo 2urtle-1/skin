@@ -13,5 +13,4 @@
 ## Mar. 10 -Changed voice sound and interface.
 ![screenshot1966](https://github.com/user-attachments/assets/6ad05a43-09a0-4fa3-a7ee-95b62b02c4ec)
 # [MISKAMODELKA(Tateyama)16.9](https://drive.google.com/file/d/1NK8ywLxbuDXN7xhYffwIdgGhk1yCEy9X/view?usp=sharing)
-## Mar. 10 -Changed voice sound and interface.
-![screenshot1966](https://github.com/user-attachments/assets/6ad05a43-09a0-4fa3-a7ee-95b62b02c4ec)
+![screenshot1979](https://github.com/user-attachments/assets/611cb38b-52d5-4f46-840c-9391116a94a2)
